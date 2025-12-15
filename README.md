@@ -4,7 +4,7 @@ Sikirullah Owoyemi
 
 Full Name: Sikirullah Owoyemi
 Popular Name: MUFASIRU-L HIQMAH 🕊️🧠
-Date of Birth: June 9, 2005
+Date of Birth: June 9, 2004
 Place of Birth: Ibadan, Oyo State, Nigeria
 Nationality: Nigerian
 Profession: Islamic Scholar, Philosopher, Author, Lecturer, Spiritual Mentor
