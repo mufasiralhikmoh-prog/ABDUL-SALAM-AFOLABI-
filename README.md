@@ -15,7 +15,7 @@ Founder: Munhaju-l Hiqmah Wa Dirhoyah Academic Institution
 
 Early Life and Background
 
-Sikirullah Owoyemi, widely known as MUFASIRU-L HIQMAH 🕊️🧠, was born on June 9, 2005, in Ibadan, Oyo State, Nigeria. From his earliest years, his life was marked by intense trials and responsibilities that forced him to mature far earlier than most of his peers. He faced numerous challenges arising from family issues, social pressures, and complex human relationships, all of which shaped his resilience, discipline, and deep understanding of life.
+Sikirullah Owoyemi, widely known as MUFASIRU-L HIQMAH 🕊️🧠, was born on June 9, 2004, in Ibadan, Oyo State, Nigeria. From his earliest years, his life was marked by intense trials and responsibilities that forced him to mature far earlier than most of his peers. He faced numerous challenges arising from family issues, social pressures, and complex human relationships, all of which shaped his resilience, discipline, and deep understanding of life.
 
 These early struggles became a foundation for strength rather than weakness. They refined his character, sharpened his intellect, and instilled in him an uncommon level of patience, reflection, and spiritual awareness.
 
